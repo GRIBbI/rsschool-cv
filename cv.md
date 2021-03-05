@@ -21,3 +21,4 @@ I know a little about layout, targeting and SEO**
 -** HTML and CSS. Website development and design Jon Duckett;Targeted Advertising Course at Universus School;Economist**
 8. *Английский язык (уровень английского языка, если была языковая практика, расскажите о ней)*</br>
 -** In general, I can explain what I need in English. From real practice, only once I had the opportunity to work with two Africans. They praised my speech, but I know that I need to improve my vocabulary. They also praised my musical taste :)**
+****
